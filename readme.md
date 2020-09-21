@@ -1,5 +1,3 @@
 cooolbeans
-rancho beans are the coolest https://www.ranchogordo.com
 
-
-few
+rancho gordo beans are actually the best gourmet beans i will fight you about this
