@@ -4,7 +4,7 @@ rancho gordo beans are actually the best gourmet beans i will fight you about th
 
 no more beans
 
-gordo beans \n 900000000
+gordo beans
 
 which is the best heirloom bean? 
 BEANS
