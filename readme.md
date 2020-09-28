@@ -6,6 +6,6 @@ no more beans
 
 6
 
-which is the best heirloom bean? 
+which is the best heirloom bean?  It is unclear based on our studies please help please 
 BEANS
 big bean
