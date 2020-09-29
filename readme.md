@@ -8,4 +8,4 @@ no more beans
 
 which is the best heirloom bean?  It is unclear based on our studies please help please 
 BEANS
-big bean
+smolders bean
