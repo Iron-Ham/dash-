@@ -13,3 +13,5 @@ Transcendental beans
 Transcendental dreams
 
 betcoin is an ecological disaster
+
+what about ethereum tho
