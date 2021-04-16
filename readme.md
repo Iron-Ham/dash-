@@ -12,5 +12,3 @@ Transcendental beans
 4
 Transcendental dreams
 
-betcoin is an ecological disaster
-
