@@ -18,4 +18,4 @@ goya? no thankya
 
 beaaaaan
 
-who is the best bean boi
+who is the best bean boy
