@@ -18,6 +18,6 @@ goya? no thankya
 
 beaaaaan
 
-soya bean
+soy beans
 
 Three 
