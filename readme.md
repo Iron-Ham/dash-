@@ -14,7 +14,7 @@ Transcendental dreams
 
 beans beans beans bean
 
-goya? no thankyao
+goya? no thankya
 
 beaaaaan
 
