@@ -1,3 +1,18 @@
+```
+        /\   /\
+       /  \ /  \
+      |    V    |
+      |  () ()  |
+      |    ^    |
+      |   \_/   |
+       \  ___  /
+        \/   \/
+       /       \
+      |  BLAH!  |
+       \_______/
+    ASCII VAMPIRE
+```
+
 cooolbeans
 
 rancho gordo beans are actually the best gourmet beans i will fight you about this
