@@ -1,3 +1,12 @@
+```
+        ,-.___,-.
+       /  (\_/)  \
+      (     o.o     )
+       > ._) (_. <
+        \   U   /
+         '-...-'
+```
+
 cooolbeans
 
 rancho gordo beans are actually the best gourmet beans i will fight you about this
