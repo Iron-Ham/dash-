@@ -1,3 +1,17 @@
+```
+       .-""""""-.
+     .'          '.
+    /   O      O   \
+   :           `    :
+   |                |   
+   :    \______/    :       
+    \                /
+     '.            .'
+       '-.______.-'
+    
+🥔 POTATO POWER! 🥔
+```
+
 cooolbeans
 
 rancho gordo beans are actually the best gourmet beans i will fight you about this
