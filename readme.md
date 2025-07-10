@@ -1,3 +1,30 @@
+```
+                    /\   /\
+                   (  . .)
+                    )   (   
+                   (  v  )
+                  ^^  o  ^^
+                 (         )
+                (  /^^^^^\ )
+               (   |     |  )
+               |   |     |  |
+               |   |_____|  |
+               |            |
+               |    ___     |
+                \  (   )   /
+                 \  \./   /
+                  \       /
+                   \_____/
+                      |
+                   /\ | /\
+                  /  \|/  \
+                 /    |    \
+                /_____^_____\
+         
+        🌙 WEREWOLF ASCII ART 🌙
+         Howling at the moon!
+```
+
 cooolbeans
 
 rancho gordo beans are actually the best gourmet beans i will fight you about this
