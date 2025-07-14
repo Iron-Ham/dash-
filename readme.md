@@ -1,3 +1,40 @@
+# ✨ Unicorn README ✨
+
+```
+                    /|   /|  
+                   /  |_/  |  
+                  /       |  
+                 /         |  
+                /    /\    |  
+               /    /  \   |  
+              /    /    \  |  
+             /    /      \ |  
+            /    /        \|  
+           /    /__________\   
+          /                 \  
+         /   (\           /)  \ 
+        /     \\_       _//    \
+       /       \\_     _//      \
+      /         \\_   _//        \
+     /           \\_/_//          \
+    /             \\_//            \
+   /               \|               \
+  /                 o\               \
+ /                 /  \               \
+/                 /    \               \
+\                /      \              /
+ \              /        \            /
+  \            /          \          /
+   \          /            \        /
+    \        /              \      /
+     \      /                \    /
+      \    /                  \  /
+       \  /                    \/
+        \/                      
+```
+
+🦄 **Welcome to the Magical Bean Repository!** 🦄
+
 cooolbeans
 
 rancho gordo beans are actually the best gourmet beans i will fight you about this
