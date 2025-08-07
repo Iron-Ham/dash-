@@ -21,3 +21,55 @@ beaaaaan
 soy beans
 
 Three 
+
+## A Lament for the Lonely Punctuation
+
+Oh semicolon, you noble pause;
+Between a comma and a period you cause
+Such confusion in the minds of those who write—
+Yet you're the perfect bridge 'tween thoughts so bright.
+
+The interrobang sits forgotten in its corner‽
+While question marks and exclamation points are mourners
+For their hybrid child that could express surprise
+And inquiry at once before our very eyes.
+
+Poor ellipsis... always trailing off...
+Never quite finishing what it meant to scoff...
+Three dots suspended in perpetual wait...
+Forever incomplete, forever late...
+
+The ampersand & sits between the words,
+Connecting thoughts like flocks of little birds,
+But "and" gets all the glory & the fame
+While & remains forgotten, what a shame.
+
+Tilde~ waves hello from Spanish class,
+Accent marks and eñes as they pass,
+But in English prose it's rarely seen~
+A wavy line without a proper scene.
+
+The humble underscore _ lies flat below,
+Supporting text but never stealing show,
+In URLs it works without complaint
+While hyphen gets the credit, oh how quaint!
+
+Pipe | stands tall between commands,
+Directing flow with steady, vertical hands,
+In code it's king, in prose it's barely there
+| dividing worlds with algorithmic care.
+
+The caret ^ points up to heaven's dome,
+Or marks a spot where errors have found home,
+In math it means "to the power of" they say
+But in writing it just slowly fades away.
+
+Backslash \ leans the other way from most,
+Escaping characters from host to host,
+A guardian of special meanings true
+Yet in common text, we bid adieu.
+
+So here's to all the marks we oft forget,
+The punctuation that we don't fret
+Over using in our daily prose—
+You make language rich, as everyone knows!
