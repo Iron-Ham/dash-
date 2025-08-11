@@ -50,3 +50,34 @@ beaaaaan
 soy beans
 
 Three 
+
+## Bean Song Lyrics 🎵
+
+*(Verse 1)*
+🎶 Bean, bean, the magical fruit,
+The more you eat, the more you toot,
+The more you toot, the better you feel,
+So eat your beans with every meal! 🎶
+
+*(Chorus)*
+🎵 Beans, beans, everywhere,
+In my bowl and in my hair,
+Lima, navy, kidney red,
+Beans will keep you nicely fed! 🎵
+
+*(Verse 2)*
+🎶 Black beans dancing in my soup,
+Chickpeas jumping in a loop,
+Pintos singing harmony,
+Beans bring joy and melody! 🎶
+
+*(Bridge)*
+🎵 B-E-A-N-S, that's the way we spell success,
+Protein-packed and full of zest,
+Beans will always be the best! 🎵
+
+*(Outro)*
+🎶 So when life gets you down and blue,
+Remember what the wise beans do,
+They stick together, strong and true,
+Just like the beans, we'll make it through! 🎶
