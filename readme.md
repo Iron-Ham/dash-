@@ -50,3 +50,25 @@ beaaaaan
 soy beans
 
 Three 
+
+## A Poem About Code and Dreams 💻
+
+In lines of code we weave our dreams,
+Through logic gates and data streams,
+Each function call, each variable,
+A step toward the incredible.
+
+The midnight oil burns bright and long,
+As programmers hum their coding song,
+Debugging errors, fixing flaws,
+Creating magic without pause.
+
+From simple scripts to complex apps,
+We bridge the digital gaps,
+With passion driving every line,
+Making technology truly shine.
+
+So here's to code and all who write,
+The digital architects of light,
+For in each program, app, and game,
+Lives the spark of human aim! 🚀
