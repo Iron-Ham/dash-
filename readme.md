@@ -50,3 +50,46 @@ beaaaaan
 soy beans
 
 Three 
+
+## A Song of Beans and Valor ⚔️🫘
+
+*Sung to the tune of ancient battle hymns*
+
+Rise up, ye humble beans of might!
+From soil and earth you claim your right,
+Not just to nourish, but to inspire,
+Warriors' hearts with noble fire!
+
+**Chorus:**
+Beans and valor, side by side!
+In our courage we confide,
+From the smallest navy white
+To the warrior's appetite!
+
+Black beans bold as midnight's shield,
+Kidney beans that never yield,
+Pinto beans with speckled crest,
+Each one puts courage to the test!
+
+Lima beans like shields of green,
+Bravest legumes ever seen,
+Chickpeas round like cannonballs,
+Answer honor's clarion calls!
+
+**Chorus:**
+Beans and valor, side by side!
+In our courage we confide,
+Protein-packed and iron-strong,
+Heroes' fuel to right the wrong!
+
+So when the battle must be fought,
+And noble deeds are to be wrought,
+Remember beans both small and grand—
+The mightiest power in the land!
+
+For in each humble, tiny seed
+Lies the strength for every deed,
+Beans and valor, forever true,
+Mighty warriors, me and you! ⚔️✨
+
+*End of song*
