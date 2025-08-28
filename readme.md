@@ -1,4 +1,6 @@
-cooolbeans
+# Dash - A Celebration of Beans
+
+Welcome to Dash, where we appreciate the humble yet mighty bean through poetry and code.
 
 ## A Poem About the Health Benefits of Eating Beans 🫘
 
@@ -29,24 +31,4 @@ A superfood that spirits lift! ✨
 
 ---
 
-rancho gordo beans are actually the best gourmet beans i will fight you about this
-
-ranchogordo.com
-
-
-electric eels have electric feels
-bEAAANS
-
-Transcendental beans 
-4
-Transcendental dreams
-
-beans beans beans bean
-
-goya? no thankyao
-
-beaaaaan
-
-soy beans
-
-Three 
+*This repository celebrates the wonderful world of beans through poetry and code.*
