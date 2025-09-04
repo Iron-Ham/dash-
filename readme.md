@@ -1,5 +1,31 @@
 cooolbeans
 
+## Testing
+
+This repository includes automated testing infrastructure for markdown files:
+
+### Running Tests Locally
+
+```bash
+# Install dependencies
+npm install
+
+# Run all tests
+npm test
+
+# Run validation tests only
+npm run test:validate
+
+# Run markdown linting only
+npm run lint
+```
+
+### Testing Infrastructure
+
+- **Validation Tests**: Ensures all markdown files exist and have content
+- **Markdown Linting**: Validates markdown formatting and style using markdownlint
+- **GitHub Actions**: Automated testing on push and pull requests
+
 ## A Poem About the Health Benefits of Eating Beans 🫘
 
 Oh mighty beans, so small yet grand,
