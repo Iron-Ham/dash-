@@ -29,24 +29,18 @@ A superfood that spirits lift! ✨
 
 ---
 
-rancho gordo beans are actually the best gourmet beans i will fight you about this
+### Additional Bean Musings
 
-ranchogordo.com
+rancho gordo beans are actually the best gourmet beans i will fight you about this  
+*ranchogordo.com*
 
+**Bean Varieties & Thoughts:**
+- soy beans
+- beans beans beans bean
+- beaaaaan
 
-electric eels have electric feels
-bEAAANS
+**Transcendental Reflections:**
+- Transcendental beans
+- Transcendental dreams
 
-Transcendental beans 
-4
-Transcendental dreams
-
-beans beans beans bean
-
-goya? no thankyao
-
-beaaaaan
-
-soy beans
-
-Three 
+*Note: goya? no thankyao* 
