@@ -27,6 +27,38 @@ Your gut bacteria will dance with delight,
 For beans are truly nature's gift,
 A superfood that spirits lift! ✨
 
+## A Poem About Uncommon Beans 🌱
+
+Beyond the common beans we know,
+Lie treasures rare where few folk go,
+Adzuki beans in crimson dress,
+Sweet and small, they do impress.
+
+Mung beans green with sprouts so bright,
+Fava beans broad, a royal sight,
+Tepary beans from desert lands,
+Surviving drought with hardy stands.
+
+Borlotti speckled pink and white,
+Cannellini, cream delight,
+Flageolet, so pale and green,
+Most elegant bean you've ever seen.
+
+Runner beans that climb so high,
+Scarlet flowers touch the sky,
+Anasazi, ancient and wise,
+Purple treasures, nature's prize.
+
+Cranberry beans with ruby swirls,
+Lima's cousin, butter pearls,
+From distant lands these gems appear,
+Each variety we should revere.
+
+So seek these beans both far and wide,
+Let curiosity be your guide,
+For in each pod and every shell,
+Lives a story few can tell! 🫘
+
 ---
 
 rancho gordo beans are actually the best gourmet beans i will fight you about this
