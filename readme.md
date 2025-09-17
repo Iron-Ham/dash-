@@ -29,6 +29,47 @@ A superfood that spirits lift! ✨
 
 ---
 
+## 🎵 Bean Song Lyrics 🎵
+
+**Verse 1:**
+In my pantry they're waiting, in jars lined up so neat  
+Black beans, kidney beans, the protein that I need  
+From the morning till the evening, they're the fuel that keeps me strong  
+Gonna sing about my beans now, come and sing the bean song!  
+
+**Chorus:**
+Beans, beans, they're good for your heart  
+The more you eat, the more you... feel great right from the start!  
+Fiber-packed and tasty too, nutrition through and through  
+Beans, beans, I'm singing for you!  
+
+**Verse 2:**
+Chickpeas in my salad, pintos in my stew  
+Lima beans and navy beans, they're healthy through and through  
+Sprouting from the garden soil, or dried upon the shelf  
+These magical little legumes are good for mental health!  
+
+**Chorus:**
+Beans, beans, they're good for your heart  
+The more you eat, the more you... feel great right from the start!  
+Fiber-packed and tasty too, nutrition through and through  
+Beans, beans, I'm singing for you!  
+
+**Bridge:**
+From Mexico to India, across the world they grow  
+In every culture, every dish, the bean's the star of the show  
+Sustainable and planet-kind, they fix nitrogen too  
+Oh beans, sweet beans, what can't you do?  
+
+**Final Chorus:**
+Beans, beans, they're good for your heart  
+The more you eat, the more you... feel great right from the start!  
+Protein-packed and tasty too, nutrition through and through  
+Beans, beans, we're singing for you!  
+Yeah, beans, beans, we're singing for you! 🎶  
+
+---
+
 rancho gordo beans are actually the best gourmet beans i will fight you about this
 
 ranchogordo.com
