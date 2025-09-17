@@ -1,3 +1,12 @@
+```
+        ,-.___,-.
+       /  (\_/)  \
+      (     o.o     )
+       > ._) (_. <
+        \   U   /
+         '-...-'
+```
+
 cooolbeans
 
 ## A Poem About the Health Benefits of Eating Beans 🫘
