@@ -1,3 +1,15 @@
+```
+    ╔═══════════════╗
+    ║  ┌─────────┐  ║
+    ║  │  TOAST  │  ║
+    ║  │    🍞   │  ║
+    ║  └─────────┘  ║
+    ║ ●           ● ║
+    ╚═══════════════╝
+       │ │ │ │ │
+       ╰─┴─┴─┴─╯
+```
+
 cooolbeans
 
 ## A Poem About the Health Benefits of Eating Beans 🫘
