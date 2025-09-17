@@ -1,3 +1,17 @@
+```
+       .-""""""-.
+     .'          '.
+    /   O      O   \
+   :           `    :
+   |                |   
+   :    \______/    :       
+    \                /
+     '.            .'
+       '-.______.-'
+    
+🥔 POTATO POWER! 🥔
+```
+
 cooolbeans
 
 ## A Poem About the Health Benefits of Eating Beans 🫘
