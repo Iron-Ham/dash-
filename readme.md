@@ -1,3 +1,18 @@
+```
+        /\   /\
+       /  \ /  \
+      |    V    |
+      |  () ()  |
+      |    ^    |
+      |   \_/   |
+       \  ___  /
+        \/   \/
+       /       \
+      |  BLAH!  |
+       \_______/
+    ASCII VAMPIRE
+```
+
 cooolbeans
 
 ## A Poem About the Health Benefits of Eating Beans 🫘
