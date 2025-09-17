@@ -1,0 +1,19 @@
+{
+  "name": "dash-testing",
+  "version": "1.0.0",
+  "description": "Testing infrastructure for dash- repository",
+  "scripts": {
+    "test": "npm run lint",
+    "lint": "markdownlint *.md",
+    "test:validate": "node test.js"
+  },
+  "devDependencies": {
+    "markdownlint-cli": "^0.45.0"
+  },
+  "repository": {
+    "type": "git",
+    "url": "https://github.com/Iron-Ham/dash-.git"
+  },
+  "author": "Iron-Ham",
+  "license": "MIT"
+}
