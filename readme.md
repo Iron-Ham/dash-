@@ -50,3 +50,10 @@ beaaaaan
 soy beans
 
 Three 
+
+Dragons soar through cloudy skies
+With emerald scales and golden eyes
+They breathe out fire, they breathe out dreams
+While guarding ancient mountain streams
+Some hoard treasure, some hoard beans
+Dragons know what magic means
