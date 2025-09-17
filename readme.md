@@ -1,3 +1,30 @@
+```
+                    /\   /\
+                   (  . .)
+                    )   (   
+                   (  v  )
+                  ^^  o  ^^
+                 (         )
+                (  /^^^^^\ )
+               (   |     |  )
+               |   |     |  |
+               |   |_____|  |
+               |            |
+               |    ___     |
+                \  (   )   /
+                 \  \./   /
+                  \       /
+                   \_____/
+                      |
+                   /\ | /\
+                  /  \|/  \
+                 /    |    \
+                /_____^_____\
+         
+        🌙 WEREWOLF ASCII ART 🌙
+         Howling at the moon!
+```
+
 cooolbeans
 
 ## A Poem About the Health Benefits of Eating Beans 🫘
