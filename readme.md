@@ -1,3 +1,40 @@
+# ✨ Unicorn README ✨
+
+```
+                    /|   /|  
+                   /  |_/  |  
+                  /       |  
+                 /         |  
+                /    /\    |  
+               /    /  \   |  
+              /    /    \  |  
+             /    /      \ |  
+            /    /        \|  
+           /    /__________\   
+          /                 \  
+         /   (\           /)  \ 
+        /     \\_       _//    \
+       /       \\_     _//      \
+      /         \\_   _//        \
+     /           \\_/_//          \
+    /             \\_//            \
+   /               \|               \
+  /                 o\               \
+ /                 /  \               \
+/                 /    \               \
+\                /      \              /
+ \              /        \            /
+  \            /          \          /
+   \          /            \        /
+    \        /              \      /
+     \      /                \    /
+      \    /                  \  /
+       \  /                    \/
+        \/                      
+```
+
+🦄 **Welcome to the Magical Bean Repository!** 🦄
+
 cooolbeans
 
 ## A Poem About the Health Benefits of Eating Beans 🫘
