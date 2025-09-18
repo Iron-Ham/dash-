@@ -1,52 +1,52 @@
-cooolbeans
+cooolbananas
 
-## A Poem About the Health Benefits of Eating Beans 🫘
+## A Poem About the Health Benefits of Eating Bananas 🍌
 
-Oh mighty beans, so small yet grand,
-With fiber rich from nature's hand,
-You lower cholesterol, that's no lie,
-And keep our blood sugar from flying high.
+Oh mighty bananas, so curved and bright,
+With potassium rich, a golden sight,
+You boost our energy, that's no lie,
+And keep our muscles from running dry.
 
-Packed with protein, strong and true,
-Iron and folate, good for you,
-Antioxidants dance within your shell,
-Fighting free radicals oh so well.
+Packed with vitamin C, fresh and true,
+Magnesium and B6, good for you,
+Natural sugars dance within your peel,
+Making tired bodies start to heal.
 
 Your potassium makes our hearts beat strong,
-Magnesium helps all day long,
-B-vitamins boost our energy bright,
-Beans make everything feel just right!
+Fiber helps our digestion along,
+Natural sweetness boosts our energy bright,
+Bananas make everything feel just right!
 
-From kidney beans to navy white,
-Black beans shining in the light,
-Chickpeas, pintos, lima too,
+From Cavendish to plantain green,
+Lady finger, sweetest seen,
+Red bananas, burro too,
 Each one brings health benefits new.
 
-So eat your beans both day and night,
-Your gut bacteria will dance with delight,
-For beans are truly nature's gift,
+So eat your bananas both day and night,
+Your body and mind will feel so light,
+For bananas are truly nature's gift,
 A superfood that spirits lift! ✨
 
 ---
 
-rancho gordo beans are actually the best gourmet beans i will fight you about this
+chiquita bananas are actually the best gourmet bananas i will fight you about this
 
-ranchogordo.com
+chiquita.com
 
 
 electric eels have electric feels
-bEAAANS
+bANAAAAS
 
-Transcendental beans 
+Transcendental bananas 
 4
 Transcendental dreams
 
-beans beans beans bean
+bananas bananas bananas banana
 
 goya? no thankyao
 
-beaaaaan
+banaaaana
 
-soy beans
+plantain bananas
 
 Three 
