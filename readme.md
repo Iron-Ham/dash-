@@ -1,4 +1,4 @@
-cooolbeans
+Cool Beans
 
 ## A Poem About the Health Benefits of Eating Beans 🫘
 
@@ -29,24 +29,21 @@ A superfood that spirits lift! ✨
 
 ---
 
-rancho gordo beans are actually the best gourmet beans i will fight you about this
+Rancho Gordo beans are considered among the finest gourmet beans available.
 
-ranchogordo.com
+Visit: ranchogordo.com
 
 
-electric eels have electric feels
-bEAAANS
+BEANS
 
-Transcendental beans 
-4
-Transcendental dreams
+Transcendental beans for transcendental dreams
 
-beans beans beans bean
+Beans are versatile and nutritious.
 
-goya? no thankyao
+Goya? No thank you.
 
-beaaaaan
+Bean
 
-soy beans
+Soy beans
 
-Three 
+Three types of beans provide excellent nutrition.
