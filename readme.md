@@ -29,6 +29,40 @@ A superfood that spirits lift! ✨
 
 ---
 
+## Bean Song Lyrics 🎵
+
+*(Verse 1)*
+🎶 Beans, beans, they're good for your heart
+The more you eat, the more you'll start
+To feel amazing, full of life
+Cut through nutrition confusion like a knife
+
+*(Chorus)*
+Sing it loud, sing it proud
+Beans are magic, say it loud!
+From the garden to your plate
+Beans make everything feel great! 🎶
+
+*(Verse 2)*
+🎶 Navy beans and kidney too
+Pinto beans, I'm singing for you
+Black beans dancing in my bowl
+Chickpeas warming up my soul
+
+*(Bridge)*
+🎶 B-E-A-N-S, that's the way
+To start your healthy, happy day
+Fiber, protein, vitamins galore
+Who could ask for anything more? 🎶
+
+*(Final Chorus)*
+🎶 Beans, beans, the musical fruit
+The more you eat, the more you'll suit
+Your body's needs, feel strong and free
+Beans are nature's melody! 🎵
+
+---
+
 rancho gordo beans are actually the best gourmet beans i will fight you about this
 
 ranchogordo.com
