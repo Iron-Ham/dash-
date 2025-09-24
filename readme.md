@@ -33,7 +33,7 @@ A superfood that spirits lift! ✨
 
 *(Verse 1)*
 🎶 Beans, beans, they're good for your heart
-The more you eat, the more you... start
+The more you eat, the more you'll start
 To feel amazing, full of life
 Cut through nutrition confusion like a knife
 
@@ -57,8 +57,8 @@ Who could ask for anything more? 🎶
 
 *(Final Chorus)*
 🎶 Beans, beans, the musical fruit
-The more you eat, the more you...
-Feel fantastic, strong and free
+The more you eat, the more you'll suit
+Your body's needs, feel strong and free
 Beans are nature's melody! 🎵
 
 ---
